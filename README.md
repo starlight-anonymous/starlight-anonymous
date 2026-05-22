@@ -1,4 +1,4 @@
-<p align="center"><img width="735" height="245" alt="image" src="https://github.com/user-attachments/assets/052f9196-c779-41fe-ac56-97c92042fce0" /></p>
+<p align="center"><img width="735" height="245" alt="image" src="https://github.com/user-attachments/assets/d032d9bd-94f0-4ab1-8115-eb5a2e3d40d5" /></p>
 
 <p align="center">[starlight anonymous](https://rentry.co/starlight_anonymous)</p>
 

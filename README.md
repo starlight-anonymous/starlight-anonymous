@@ -1,6 +1,6 @@
 <p align="center"><img width="735" height="245" alt="image" src="https://github.com/user-attachments/assets/d032d9bd-94f0-4ab1-8115-eb5a2e3d40d5" /></p>
 
-<p align="center">starlight - ask for fronter's pronouns</p>
+<p align="center">starlight - ask for fronter's pronouns - 19</p>
 <p align="center">polyfrag system - introj-heavy - native american</p>
 <p align="center">ignores discourse & drama</p>
 

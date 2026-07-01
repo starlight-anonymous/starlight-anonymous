@@ -2,6 +2,7 @@
 
 <p align="center">starlight - ask for fronter's pronouns - 19 y/o</p>
 <p align="center">polyfrag system - introj-heavy - native american</p>
+<p align="center">we have frequent dissociation & memory gaps</p>
 <p align="center">ignores discourse & drama</p>
 
 <p align="center"><img width="2048" height="164" alt="image" src="https://i.postimg.cc/vZwWZG0W/edc7e23a5f238ee2c4500e9088f61b36f133e23c.png" /></p>

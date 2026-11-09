@@ -7,5 +7,5 @@
 
 <p align="center"><img width="2048" height="164" alt="image" src="https://i.postimg.cc/vZwWZG0W/edc7e23a5f238ee2c4500e9088f61b36f133e23c.png" /></p>
 
-<p align="center">C+H & INT OKAY - ASK FOR SOURCE TALK - CROWN GIVER</p>
+<p align="center">individual boundaries written in prns.cc alter pages</p>
 <p align="center">fakeclaimers will be ignored, makes kys/kms jokes, says slurs we can reclaim</p>
